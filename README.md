@@ -1,1 +1,1 @@
-[# link-alternatif] index.html
+# slotbp9.github.io/link-alternatif/index.html
