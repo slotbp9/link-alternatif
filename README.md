@@ -1,1 +1,1 @@
-# slotbp9.github.io/link-alternatif/
+# [slotbp9.github.io/link-alternatif/](https://slotbp9.github.io/link-alternatif/)
